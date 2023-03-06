@@ -10,7 +10,7 @@ please apply legal 请遵守法律！<br>
 <br>
 <br>
 <br>
-联络email<br>technology2020helloworld@outlook.com<br>
+technology2020helloworld@outlook.com<br>
 电话meeting【不需要注册！请录入】https://join.skype.com/sXcAf5LSLLgj<br>
 <a href="https://join.skype.com/sXcAf5LSLLgj">skype meeting</a><br>
 <br>
