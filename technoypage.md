@@ -1,7 +1,4 @@
 <br>
-<br>
-<br>
-<br>
 <!-- <meta http-equiv="refresh" content="3;url=http://localhost:8080/testweb/index.jsp" />--><br>  
 please apply legal 请遵守法律！<br>
 <br>
@@ -33,7 +30,10 @@ TMS合作研究？<br>
 【投资合作？】<br>
 能合伙投资网络软件请联络？ 电磁检测<br>
 <br>
-<br
+<br>
+<br>
+<br>
+<br>
 <br>
 <br>
 
