@@ -3,11 +3,9 @@
 <br>
 <meta http-equiv="refresh" content="3;url=https://join.skype.com/uEDBwhtBKuxg" /><br>  
 please apply legal 请遵守法律！<br>
-<br>
 您能合作联络律师医护研究？<br>
 technology2020helloworld@outlook.com<br>
 【meeting不需要注册！请录入】<br>
-<br>
 <a href="https://join.skype.com/uEDBwhtBKuxg">https://join.skype.com/uEDBwhtBKuxg</a><br>
 <br>
 【技术路线？】<br>
@@ -30,7 +28,5 @@ TMS合作研究？<br>
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
+
 
