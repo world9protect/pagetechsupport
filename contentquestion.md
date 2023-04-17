@@ -2,10 +2,8 @@
 <br>
 <br>
 您好能请教问题吗？<br>
-听说经脑磁TMS能减轻电磁感受？<br>
-能配合实验吗？<br>
-实验能展示医护类电磁线索？<br>
-<a href="https://xingren.com/web/article/MQZefbRN/wap">脑磁TMS？https://xingren.com/web/article/MQZefbRN/wap</a><br>
+<br>
+请问这次活动具体在什么医护检测电磁线索？能给个地址吗<br>
 <br>
 <br>
 <br>
@@ -22,6 +20,8 @@
 <a href="http://www.neurosky.com.cn/products-markets/eeg-biosensors/hardware/">脑电软件？</a><br>
 <br>
 配合TMS技术研究？联络邮件<br>
+<a href="https://xingren.com/web/article/MQZefbRN/wap">脑磁TMS？https://xingren.com/web/article/MQZefbRN/wap</a><br>
+<br>
 <a href="https://join.skype.com/uEDBwhtBKuxg">不需要注册！https://join.skype.com/uEDBwhtBKuxg</a><br>
 <br>
 technology2020helloworld@outlook.com<br>
