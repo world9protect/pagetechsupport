@@ -15,7 +15,6 @@
 诉讼群？<br>
 <a href="https://icator.be/news/">https://icator.be/news/</a><br>
 <br>
-【志愿者？】<br>
 有脑机接口谁能合作？<br>
 <a href="https://store.neurosky.com/products/copy-of-eeg-meditation">注意力数据或皮层的放电？</a><br>
 <br>
