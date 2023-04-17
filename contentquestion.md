@@ -4,11 +4,11 @@
 您好能请教问题吗？<br>
 听说经脑磁TMS能减轻电磁感受？<br>
 能配合实验吗？<br>
-实验能展示医护类线索？<br>
+实验能展示医护类电磁线索？<br>
 <br>
 <br>
 <br>
-电磁线索<br>
+电磁线索？<br>
 <a href="https://www.icnirp.org/en/frequencies/radiofrequency/index.html">联合办公室电磁标准文件 100 kHz - 300 GHz？</a><br>
 <br>
 诉讼群？<br>
@@ -25,7 +25,6 @@
 <a href="https://join.skype.com/uEDBwhtBKuxg">不需要注册！https://join.skype.com/uEDBwhtBKuxg</a><br>
 <br>
 technology2020helloworld@outlook.com<br>
-<br>
 <br>
 <br>
 <br>
