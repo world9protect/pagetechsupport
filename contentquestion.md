@@ -5,6 +5,7 @@
 听说经脑磁TMS能减轻电磁感受？<br>
 能配合实验吗？<br>
 实验能展示医护类电磁线索？<br>
+https://xingren.com/web/article/MQZefbRN/wap<br>
 <br>
 <br>
 <br>
