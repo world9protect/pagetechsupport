@@ -5,7 +5,7 @@
 电磁线索？<br>
 <a href="https://www.icnirp.org/en/frequencies/radiofrequency/index.html">联合办公室电磁标准文件 100 kHz - 300 GHz?</a><br>
 <br>
-BCI脑机接口线索类合作？
+BCI脑机接口线索类合作？<br>
 <a href="https://world9protect.github.io/pagetechsupport/techquestionpages">BCI脑机接口?</a><br>
 <br>
 经脑磁TMS技术研究？<br>
@@ -26,3 +26,9 @@ email【technology2020helloworld@outlook.com】<br>
 <br>
 <br>
 <br>
+<br>
+
+<br>
+<br>
+<br>
+
