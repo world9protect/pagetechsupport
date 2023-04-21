@@ -1,7 +1,7 @@
 <br>
 <br>
 <br>
-脑机接口BCI<br>
+脑机接口BCI线索合作<br>
 <br>
 电子装备电磁监测<br>
 <a href="https://mne.tools/stable/auto_examples/visualization/plot_sensor_noise_level.html#sphx-glr-auto-examples-visualization-plot-sensor-noise-level-py">click</a><br>
@@ -16,7 +16,7 @@
 <br>
 <br>
 <br>
-BCI线索合作   【感觉到交流电声音，观察到电子装备或者网络问题？】<br>
+【感觉到交流电声音，观察到电子装备或者网络问题？】<br>
 step1   调试Brain-computer interface，声音，影视录制装备<br>
 step2   试用脑电app ，电脑记录压力指数,放松度,专注度,熟悉度 etc<br>
 step3   听到电磁声音类似交流电声音时，观察指数变换情况和准确时间<br>
@@ -29,6 +29,8 @@ step5   数据研究，实验集，正常集对比办法<br>
 请遵守法律？<br>
 please comply with the international legal, Peaceful purpose<br>
 Not against the official government and normal rule,  and Keep secret for person information <br>
+<br>
+<br>
 <br>
 <br>
 <br>
