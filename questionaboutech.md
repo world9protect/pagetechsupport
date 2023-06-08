@@ -32,7 +32,7 @@ http://www.neurosky.com.cn/products-markets/eeg-biosensors/hardware/<br>
 https://store.neurosky.com/products/copy-of-eeg-meditation<br>
 <br>
 --------------------------------------------------------------------<br>
-联络聊天室【或邀请外语脑机接口能手】
+联络聊天室【或邀请外语脑机接口能手】<br>
 <a href="https://join.skype.com/uEDBwhtBKuxg">请注册outlook email https://join.skype.com/uEDBwhtBKuxg</a><br>
 <br>
 【医护合作？】<br>
