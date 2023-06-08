@@ -12,7 +12,7 @@
 涉外集体诉讼有脑电类技术能手<br>
 研究脑机接口或tms<br>
 电磁或脑际检测配合presentation技术演示<br>
-需要请联络email或电话类?<br>
+需要请联络email或电话类<br>
 <br>
 【电磁线索-----极低频】<br>
 https://www.icnirp.org/en/frequencies/radiofrequency/index.html<br>
