@@ -16,7 +16,6 @@
 <br>
 【电磁线索-----极低频】<br>
 https://www.icnirp.org/en/frequencies/radiofrequency/index.html<br>
-https://preview.mailerlite.com/q7d0s2s1i3/2228812849302475933/w2k5/<br>
 翻译内容类似人们的大脑和身体无法抵御电磁波和神经技术的攻击<br>
 人体充满了电和电磁事件，因此可以通过电磁辐射来控制，电磁辐射对其状态产生良性和有害影响。<br>
 它甚至可以控制诸如细胞分裂 https://onlinelibrary.wiley.com/doi/abs/10.1002/bem.2250060107 <br>
