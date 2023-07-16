@@ -31,6 +31,8 @@ https://icator.be/testimony/<br>
 <br>
 <br>
 请遵守法律<br>
+email<br>
+technology2020helloworld@outlook.com<br>
 <br>
 <br>
 <br>
