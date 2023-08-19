@@ -18,6 +18,7 @@ https://www.icnirp.org/en/frequencies/radiofrequency/index.html<br>
 【网络意见-----电磁检测类】<br>
 有很多类似减轻电磁问题意见<br>
 请伙伴帮请教怎么办类似要求意见？<br>
+网络电磁检测意见具体怎么？
 <br>
 <br>
 <br>
