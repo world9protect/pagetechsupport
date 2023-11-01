@@ -13,7 +13,7 @@
 <a href="https://xingren.com/web/article/MQZefbRN/wap">减轻感受TMS？https://xingren.com/web/article/MQZefbRN/wap</a><br>
 <br>
 电磁读脑？<br>
-<a href="https://www.weibo.com/6556364234/NqB9Y8A70?pagetype=profilefeed">[减轻感受TMS?]https://www.weibo.com/6556364234/NqB9Y8A70?pagetype=profilefeed</a><br><br>
+<a href="https://www.weibo.com/6556364234/NqB9Y8A70?pagetype=profilefeed">[减轻感受TMS?]https://www.weibo.com/6556364234/NqB9Y8A70?pagetype=profilefeed</a><br>
 <br>
 【脑机数据？】<br>
 <a href="https://store.neurosky.com/products/copy-of-eeg-meditation">注意力数据或皮层的放电？</a><br>
@@ -22,7 +22,12 @@
 <a href="http://www.neurosky.com.cn/products-markets/eeg-biosensors/hardware/">脑电软件？</a><br>
 <br>
 【脑电事件?】<br>
-<a href="">脑电软件？</a><br>
+<a href="https://wenku.baidu.com/view/3555c7cb2079168884868762caaedd3382c4b50e.html?_wkts_=1698850175525&bdQuery=%E8%84%91%E7%94%B5%E4%BA%8B%E4%BB%B6%E7%B1%BB&needWelcomeRecommand=1">怎么研究脑电事件类？</a><br>
+<br>
+【电磁窃密?】<br>
+<a href="https://zhuanlan.zhihu.com/p/480124378?utm_id=0">保密研究类？</a><br>
+<br>
+<br>
 <br>
 email【technology2020helloworld@outlook.com】<br>
 请遵守法律<br>
