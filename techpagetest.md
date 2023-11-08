@@ -2,7 +2,6 @@
 <br>
 <br>
 <br>
-
 根据电磁标准和线索到办公室确认电磁问题或意见？<br>
 <a href="https://www.icnirp.org/en/frequencies/radiofrequency/index.html">联合办公室电磁标准文件 100 kHz - 300 GHz?</a><br>
 <br>
@@ -14,7 +13,7 @@
 <a href="https://xingren.com/web/article/MQZefbRN/wap">减轻感受TMS？https://xingren.com/web/article/MQZefbRN/wap</a><br>
 <br>
 电磁读脑？<br>
-<a href="https://video.weibo.com/show?fid=1034:4963419846017054">[电磁读脑?]</a><br>
+<a href="https://video.weibo.com/show?fid=1034:4965826286256192">[电磁读脑?]</a><br>
 <br>
 【脑机数据？】<br>
 <a href="https://store.neurosky.com/products/copy-of-eeg-meditation">注意力数据或皮层的放电？</a><br>
