@@ -2,9 +2,7 @@
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
+
 根据电磁标准和线索到办公室确认电磁问题或意见？<br>
 <a href="https://www.icnirp.org/en/frequencies/radiofrequency/index.html">联合办公室电磁标准文件 100 kHz - 300 GHz?</a><br>
 <br>
