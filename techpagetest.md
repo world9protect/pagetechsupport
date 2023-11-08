@@ -14,7 +14,7 @@
 <a href="https://xingren.com/web/article/MQZefbRN/wap">减轻感受TMS？https://xingren.com/web/article/MQZefbRN/wap</a><br>
 <br>
 电磁读脑？<br>
-<a href="https://www.weibo.com/6556364234/NqBQBxoSBd">[电磁读脑?]</a><br>
+<a href="https://video.weibo.com/show?fid=1034:4963419846017054">[电磁读脑?]</a><br>
 <br>
 【脑机数据？】<br>
 <a href="https://store.neurosky.com/products/copy-of-eeg-meditation">注意力数据或皮层的放电？</a><br>
